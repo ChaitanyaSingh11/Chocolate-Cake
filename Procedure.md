@@ -51,4 +51,4 @@
   ![Step - 16](https://i0.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8124.jpg?w=500&ssl=1)
   - Remove and let it cool completely before slicing and serving. 
   
-  ![Step - 17](https://rb.gy/6ghwhd)
+  ![Step - 17](https://i2.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8152.jpg?w=500&ssl=1)
