@@ -13,4 +13,4 @@
 *  Oil or Melted Butter - ⅓ cup (80 ml) 
 
 ![Oil or Melted Butter](https://assets.labroots.com/_public/_files/system/ck/trending/199328_636x357_6d5dfb426d546b04aab36279c8530a19.jpg)
-*  Chocolate Chips - ½ cup (optional) ![Chocolae Chip](https://upload.wikimedia.org/wikipedia/commons/9/96/Semi-sweet_chocolate_chips.jpg)
+*  Chocolate Chips - ½ cup (optional) ![Chocolae Chip](https://c.tadst.com/gfx/750w/chocolate-chip-day-fun.jpg)
