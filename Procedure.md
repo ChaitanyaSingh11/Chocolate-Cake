@@ -20,7 +20,7 @@
   - Add in milk 
   
   ![Step - 7](https://i2.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8111.jpg?w=500&ssl=1)
-  - Mix well 
+  - Mix well !!
   
   ![Step - 8](https://i1.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8112.jpg?w=500&ssl=1)
   - Sieve over some all purpose flour 
@@ -43,10 +43,10 @@
   - Line a pan with foil or parchment paper and grease it lightly. Pour batter in it. 
   
   ![Step - 14](https://i2.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8122.jpg?w=500&ssl=1)
-  -  you can bake just like this. 
+  -  You can bake just like this. 
   
   ![Step - 15](https://i0.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8123.jpg?w=500&ssl=1)
-  - But i like to sprinkle the top with chocolate chips. Bake in a 180 degree c preheated oven for 30 to 35 mins 
+  - But I like to sprinkle the top with chocolate chips. Bake in a 180 degree c preheated oven for 30 to 35 mins 
   
   ![Step - 16](https://i0.wp.com/www.yummytummyaarthi.com/wp-content/uploads/2017/09/IMG_8124.jpg?w=500&ssl=1)
   - Remove and let it cool completely before slicing and serving. 
