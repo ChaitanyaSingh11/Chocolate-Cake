@@ -1,5 +1,5 @@
 # Ingredients
-*  All Purpose Flour / Maida - ¾ cup (90 grams)
+*  All Purpose Flour / Maida - ¾ cup (90 grams) ![All purpose Flour](https://i.ndtvimg.com/mt/cooks/2014-11/flour.jpg)
 *  Cocoa Powder - ¼ cup (25 grams)
 *  Sugar - ½ cup (100 grams)
 *  Egg - 1
