@@ -53,4 +53,4 @@
   
   ![Step - 17](https://thedessertedgirl.com/wp-content/uploads/2014/11/ChocolateChipCake2.jpg)
 
-  🏡[HOME](https://github.com/ChaitanyaSingh11/Chocolate-Cake#chocolate-cake-recipe)
+  🏡[HOME](https://chaitanyasingh11.github.io/Chocolate-Cake/)
