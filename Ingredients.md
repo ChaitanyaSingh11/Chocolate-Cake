@@ -15,4 +15,4 @@
 ![Oil or Melted Butter](https://assets.labroots.com/_public/_files/system/ck/trending/199328_636x357_6d5dfb426d546b04aab36279c8530a19.jpg)
   -  Chocolate Chips - ½ cup (optional) ![Chocolae Chip](https://c.tadst.com/gfx/750w/chocolate-chip-day-fun.jpg)
 
-  * To see Procedure 👉👉 [Click Here](https://github.com/ChaitanyaSingh11/Chocolate-Cake/blob/master/Procedure.md#procedure-)
+  * To see Procedure 👉👉 [Click Here](https://chaitanyasingh11.github.io/Chocolate-Cake/Procedure)
